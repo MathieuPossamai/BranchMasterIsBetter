@@ -1,0 +1,2 @@
+# BranchMasterIsBetter
+Because main sus.
