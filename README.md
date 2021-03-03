@@ -1,2 +1,2 @@
 # BranchMasterIsBetter
-Because main sus.
+Because main sux.
